@@ -1,1 +1,0 @@
-# clarkviray.github.io
